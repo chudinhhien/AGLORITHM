@@ -1,0 +1,2 @@
+# THUẬT TOÁN LÀ NỀN TẢNG CỦA MỘT LẬP TRÌNH VIÊN GIỎI
+# VÌ VẬY TÔI LUÔN CHÚ TRỌNG ĐẾN THUẬT TOÁN
